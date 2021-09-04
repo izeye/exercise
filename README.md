@@ -3,6 +3,10 @@
 * Fun Yoga Poses | The Tiger Pose Vyaghrasana
   * https://www.youtube.com/watch?v=WX4Ppf8Sb6Q&list=PLyj8lJkqX5FUfnvjWoFxy81ho11kU21Q9&index=1
 
+## Juggle
+### YouTube
+* [Learn to JUGGLE 3 BALLS - Beginner Tutorial](https://www.youtube.com/watch?v=dCYDZDlcO6g)
+
 ## Neck
 * [exercise for cervical disc by American spine association](https://www.youtube.com/watch?app=desktop&v=eKUH0Rcwhd8)
 
