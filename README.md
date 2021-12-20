@@ -11,7 +11,6 @@
 * [exercise for cervical disc by American spine association](https://www.youtube.com/watch?app=desktop&v=eKUH0Rcwhd8)
 
 ## Shoulder
-* How to Fix Shoulder Pain Fast
-  * https://www.youtube.com/watch?v=_jyGUfjtHsw
-* The BEST Shoulder Pain Exercise That Fixes The #1 Cause of Shoulder Pain
-  * https://www.youtube.com/watch?v=QKbAkFqRaBU
+* [How to Fix Shoulder Pain Fast](https://www.youtube.com/watch?v=_jyGUfjtHsw)
+* [The BEST Shoulder Pain Exercise That Fixes The #1 Cause of Shoulder Pain](https://www.youtube.com/watch?v=QKbAkFqRaBU)
+* [Understanding Shoulder Pain and How To Fix It](https://www.youtube.com/watch?v=B4UYaumLy90)
