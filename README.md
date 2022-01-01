@@ -8,6 +8,7 @@
 * [Learn to JUGGLE 3 BALLS - Beginner Tutorial](https://www.youtube.com/watch?v=dCYDZDlcO6g)
 
 ## Neck
+* [10 Best Cervical Herniated Disc Exercises & Stretches - Ask Doctor Jo](https://www.youtube.com/watch?v=IOKNxhzJ1Tg)
 * [exercise for cervical disc by American spine association](https://www.youtube.com/watch?app=desktop&v=eKUH0Rcwhd8)
 
 ## Shoulder
