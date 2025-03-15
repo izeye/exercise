@@ -10,6 +10,7 @@
 ## Neck
 * [10 Best Cervical Herniated Disc Exercises & Stretches - Ask Doctor Jo](https://www.youtube.com/watch?v=IOKNxhzJ1Tg)
 * [exercise for cervical disc by American spine association](https://www.youtube.com/watch?app=desktop&v=eKUH0Rcwhd8)
+* [How to Fix a Pinched Nerve in the Neck | Dr. Jon Saunders](https://www.youtube.com/watch?v=0krYvmCjVv4)
 * [Neck Stretches to Relieve Numbness and Tingling in Hands](https://www.youtube.com/watch?v=3KaIpNUHyic)
 
 ## Shoulder
